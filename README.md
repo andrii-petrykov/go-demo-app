@@ -1,4 +1,4 @@
-# Let's KIK!!
+# Let's KIK!
 
 #
 
